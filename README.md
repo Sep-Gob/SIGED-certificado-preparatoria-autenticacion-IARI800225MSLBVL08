@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-IARI800225MSLBVL08
+IARI800225MSLBVL08
